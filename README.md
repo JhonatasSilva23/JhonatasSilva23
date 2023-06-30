@@ -1,5 +1,6 @@
 ### Hi there 👋
-
+😄 Um estudante em busca de evolução
+💬 Posso dizer que sou bom em nada, pois de tudo procuro aprender e a fazer de tudo um pouco
 <!--
 **JhonatasSilva23/JhonatasSilva23** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
